@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @poisonedracoon
+- 👀 I’m interested in learning code 
+- 🌱 I’m currently learning how to do codes, i just started today because I got influenece
+- 🤗 I'm an artist, I like to draw, and I'm hopind to make new friends here
